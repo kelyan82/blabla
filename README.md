@@ -1,8 +1,1 @@
-# blabla
-okokokokokokok
-;nsqbjhBZfeHAC VR
-geraq
-h*r*mh
-*vc
-*aD
-FDLKM
+EST CE QUE T AS DEJA LECHER LES 2 BOULES D UN MEC ?
